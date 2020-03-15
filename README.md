@@ -7,10 +7,10 @@ http://kiitmsp.club/
 
 ## Social Media Handles
 
-* [Instagram](instagram.com/mspckiit)
-* [Twitter](twitter.com/mspckiit)
-* [Facebook](facebook.com/mspckiit/)
-* [LinkedIn](linkedin.com/company/mspckiit/)
+* [Instagram](https://instagram.com/mspckiit)
+* [Twitter](https://twitter.com/mspckiit)
+* [Facebook](https://facebook.com/mspckiit/)
+* [LinkedIn](https://linkedin.com/company/mspckiit/)
 
 ## Policies
 
